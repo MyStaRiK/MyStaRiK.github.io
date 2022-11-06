@@ -1,0 +1,1 @@
+# MyStaRiK.github.io
